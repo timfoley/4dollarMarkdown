@@ -2065,3 +2065,35 @@ To pan-fry them instead, start following the technique above, but use more oil. 
 
 Alternatively, boil the dumplings by dropping them into a pot of boiling water. When they rise to the top, they’re ready to eat, usually in 1 or 2 minutes.
 ￼
+# Staples
+
+These are the building blocks of great meals. Freshly made flatbreads are amazingly cheap to produce and taste fabulous. They can take a bit of time to make at first, but you’ll get faster with practice and the flavor is absolutely worth it. Large batches of grains and beans can be cooked at the beginning of the week, then used in different meals each day, saving both time and money. Staples are where the possibilities begin!
+
+## Flour Tortillas
+- MAKES TWENTY-FOUR SMALL TORTILLAS
+- $1.70 TOTAL $0.07 / TORTILLA
+
+#### Ingredients
+- 11⁄4 cups all-purpose flour
+- 11⁄4 cups whole-wheat flour
+- 21⁄2 tsp baking powder
+- 1 tsp salt
+- 1/3 cup clarified butter or lard
+- 1 cup hot water
+
+#### Instructions
+
+In a large bowl, whisk the dry ingredients. Add clarified butter or lard. Lard is more traditional, but I prefer clarified butter. Even regular butter is fine. Using your fingers, squish the butter against the flour until the mixture looks like moist crumbs. Add the hot water—not boiling, just hot—and form into dough with your hands. Leave the dough in the bowl for an hour, covered by plastic wrap or a moist towel.
+
+Roll the dough into 24 small balls. Keep them covered with the towel.
+
+Lightly flour your countertop. Gently flatten one dough ball with your palm, then roll it out with a rolling pin. Flip it over to make sure it doesn’t stick to the counter; add more flour if it does stick. Once you have the ball rolled out nice and thin, set it aside under a moist towel.
+
+Once you’ve rolled out one or two tortillas, put a non-stick or cast-
+iron pan on medium-high heat. Let it get nice and hot. Place a tortilla in the pan. Once it starts to dry up around the edges, flip it over with a spatula, then gently press it down to give it some color underneath. Once the tortilla has brown spots on both sides, remove it from the pan and continue with the next. Work quickly! As you wait for each tortilla to cook, roll out more. You’ll get better at this part with practice.
+
+If you’re serving the tortillas soon, place them in a warm oven to keep them pliable. If they’re for later in the day, pile them under a cloth while you finish making them. Once you’re done, wrap them in aluminum foil and put them in the fridge. Heat in the oven before serving.
+
+## Roti
+- MAKES SIXTEEN
+- $0.50 TOTAL $0.03 / ROTI
