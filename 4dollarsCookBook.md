@@ -129,6 +129,8 @@ For today's breakfast, fluffy, creamy eggs hold together a mass of tangy, juicy,
 - salt and pepper
 - basil or other herbs, chopped (optional)
 
+#### Instructions
+
 Put a small pan on medium heat and melt the butter, then swirl it around to coat the pan. Add the tomatoes. Cook until the tomatoes release their juice and most of the juice evaporates, about 5 to 7 minutes.
 
 Meanwhile, crack the eggs into a bowl and add a generous pinch of salt and pepper. Beat the eggs lightly with a fork.
@@ -148,6 +150,8 @@ This basic recipe can be dressed up in so many ways, you'll never get bored. Oat
 - 1 cup rolled oats
 - 2 cups water
 - ¼ tsp salt
+
+#### Instructions
 
 In a small pot, add the oats, water and salt. Place it on medium-high heat, just until the water comes to a boil. Immediately turn the heat to low and place a lid on the pot. Cook for 5 minutes, until the oats are soft and tender and most of the water has cooked off. You can add more water if you like your oatmeal smooth and thin, or use slightly less if you want a thick oatmeal.
 
@@ -218,6 +222,8 @@ If your oven has a broiler, this is a fast and fun way to liven up a standard, h
 - 2 tbsp brown sugar
 - Salt
 
+#### Instructions
+
 Turn on the broiler in your oven.
 
 Split a grapefruit in half and place it on a baking tray or in an oven-proof pan. Sprinkle the pink halves evenly with sugar and top with just a tiny bit of salt to bring out the flavor.
@@ -244,6 +250,8 @@ I make this omelette at least once a week. It's insanely delicious, whether lade
 - 1 shallot or ½ small red onion,
 - finely diced
 - ¼ cup grated cheese
+
+#### Instructions
 
 Crack the eggs in a bowl. Add the dill, salt, pepper, and beat with a fork.
 
@@ -275,6 +283,8 @@ With the creamy texture and delicious flavor of bananas, these pancakes are stun
 - 1 tsp vanilla
 - 2 bananas, sliced
 - butter for cooking
+
+#### Instructions
 
 In a medium bowl, add the flour, brown sugar, baking powder, soda and salt. Mix thoroughly with a spoon.
 
@@ -308,6 +318,8 @@ Egg Wash
 
 - 1 egg
 - salt and pepper
+
+#### Instructions
 
 Place the butter in the freezer for 30 minutes.
 
@@ -361,6 +373,8 @@ This thick lentil soup is a flavor-packed staple of the Indian table. There are 
 - ½ inch ginger root, grated
 - salt and pepper
 
+#### Instructions
+
 You can use any type of lentil you like. If you're using larger lentils (like chana dal, french lentils, or split mung beans), soak them for 30 minutes to start. If you're using the small orange lentils, then don't bother soaking them; they cook very quickly.
 
 Melt butter in a saucepan on medium heat. Add the onion and let it cook for 1 minute, then add the cumin and mustard seeds and stir them around with the onions until they sizzle. Toss in the turmeric powder, garlic, and chili and cook for 3 to 4 more minutes. Add the ginger root and stir fry quickly for about 30 seconds.
@@ -396,6 +410,8 @@ Corn Broth
 Alternate Broth
 
 - 5 cups vegetable broth or chicken stock
+
+#### Instructions
 
 If you're making this soup with corn on the cob, the first step is to make corn broth. If you're using canned or frozen corn, you'll also need chicken or vegetable broth instead. In that case, skip the next paragraph.
 
@@ -441,6 +457,8 @@ Optional
 - scallions
 - cilantro
 
+#### Instructions
+
 To prepare the squash, peel off the tough skin with a potato peeler. Cut the squash in half lengthwise with a sharp chef's knife, then scoop out the seeds and gloop. (You can save the seeds for a tasty snack later, if you like: just clean the gloop off, then toast them.)
 
 Next, slice off the stem and very bottom of the squash and throw them away. Take each half of the squash and place it face-down on a cutting board. Slice each across into ½" sticks, then turn each slice into cubes.
@@ -476,6 +494,8 @@ Even if you aren’t a big eggplant fan, you might enjoy this despite yourself. 
 - fresh dill, finely chopped (optional)
 - salt and pepper
 
+#### Instructions
+
 Turn on your oven’s broiler. Arrange the slices of eggplant on a baking sheet, then place them under the broiler for about 3 minutes. Watch them carefully. Once they begin to blacken, remove them from the oven and flip the slices over. Repeat the process on the other side. Once your eggplant is nicely charred, chop it into bite-sized pieces.
 
 In a bowl, mix the tahini, lemon juice, and chili flakes (if using), plus plenty of salt and pepper. Add the eggplant and stir it around. Add more salt or lemon juice according to your taste, then top it with dill if available, and serve!
@@ -502,6 +522,8 @@ Dressing
 - 1 anchovy, finely chopped
 - 3 tbsp olive oil
 - salt and pepper
+
+#### Instructions
 
 Start by making croutons.
 
@@ -541,6 +563,8 @@ Additions
 - grated carrots
 - salsa
 
+#### Instructions
+
 Mix up the dressing and taste it. Adjust the salt, pepper, and lime to your liking.
 
 Mix the other ingredients in a large bowl. Pour the dressing over just before serving and toss to coat the salad evenly. Eat immediately, maybe with a few extra tortilla chips on the side.
@@ -562,6 +586,8 @@ Dressing
 - 1 tsp chili sauce
 - 1 tbsp olive oil
 - salt and pepper
+
+#### Instructions
 
 Peel the beets, removing the stems if necessary, then shred the beets with a box grater. Place the beets in a bowl along with the chickpeas and nuts.
 
@@ -591,6 +617,8 @@ Additions
 - bean sprouts
 - hard-boiled egg
 - chopped tomato
+
+#### Instructions
 
 Prepare the noodles according to the package instructions. Rinse them under cold water and put them in a colander to drain.
 
@@ -622,6 +650,8 @@ ALTERNATE DRESSING
 - 1 tsp lemon juice
 - 1 tsp chopped fresh dill
 - salt and pepper
+
+#### Instructions
 
 Slice the stem of the broccoli into 1/8” discs. If you can’t get them that thin, don’t worry, but the thinner the better if you have the patience! Once you reach the crown of the broccoli, cut each of the florets off and slice each of them as thinly as you can as well. Set the broccoli in a bowl.
 
@@ -736,6 +766,8 @@ This is more of a method than a recipe. These are so crunchy and savory that you
 - 1-2 tsp vegetable oil
 - salt
 
+#### Instructions
+
 The night before, take your leftover cooked polenta and put it in a baking pan or flat piece of Tupperware. Anything with a flat surface on the bottom will do. Smooth the polenta down so it’s even and flat like you would if you were making brownies. Cover and leave it in the fridge over night.
 
 The next day take the polenta out of the fridge. It should be one hardened mass. Carefully remove it from the pan. Slice the polenta into strips like french fries, of about 2” in length.
@@ -756,6 +788,8 @@ These are a great snack or a quick meal, and you can add pretty much anything to
 - ½ cup sharp cheddar, grated
 - ½ cup green chilies, canned or fresh, chopped
 - 1 tbsp cilantro, chopped
+
+#### Instructions
 
 Spread ¼ cup of green chilies evenly over one tortilla. Sprinkle ¼ cup of cheese over the chilies, then top with half the cilantro. Place another tortilla on top of each prepared tortilla to form a quesadilla. Repeat!
 
@@ -790,6 +824,8 @@ GRAVY
 - salt and pepper
 - 6 leaves fresh sage, finely chopped (optional)
 
+#### Instructions
+
 Set the oven to 400 F.
 
 Pour 1 tablespoon of vegetable oil onto a baking sheet. Spread the oil around, then spread out the sticks of sliced potato. Pour the rest of the oil over the top and sprinkle generously with salt and pepper. Use your hands to ensure the potatoes are coated with oil, salt, and pepper, and evenly spread across the pan. Place them in the oven and bake for 20 minutes.
@@ -816,6 +852,8 @@ Popcorn is such a great snack. It’s easy to forget how easy and cheap it is to
 - 2 tbsp vegetable oil
 - 2 tbsp butter, melted
 - salt
+
+#### Instructions
 
 Place a large pot with a tight-fitting lid on the stove. Pour in the vegetable oil, then the popcorn kernels. Put the lid on and turn the heat to medium.
 
@@ -854,6 +892,8 @@ This is one of my favorite ways to use roasted cauliflower other than eating it 
 - ½ cup cheese, grated
 - ½ cup salsa (p. 163) or sauce of choice
 
+#### Instructions
+
 Warm up the tortillas in the microwave for 20 to 30 seconds, or put them in a warm oven covered with a towel while you prepare everything else.
 
 Place two to three tortillas on each plate and fill with a generous serving of cauliflower.
@@ -874,6 +914,8 @@ Obviously you should just make all kinds of pizza. Seriously, do it. Make it a T
 - 3 leeks, sliced into circles
 - salt and pepper
 - 1 lb fresh mozzarella, shredded
+
+#### Instructions
 
 Turn the oven to 500 °F.
 
@@ -906,6 +948,8 @@ Calzones are pizza in a slightly different form—a form that lets you get stuff
 - salt and pepper
 - 2 cups grated mozzarella cheese
 
+#### Instructions
+
 Turn the oven to 500 °F (or as hot as your oven gets). Sprinkle a small amount of flour or cornmeal over a baking sheet and set aside.
 
 Place a large pan on medium heat and add the olive oil. Once the oil is hot, add the tough stem ends of the broccoli rabe and cook for 2 minutes. Next, add the rest of the broccoli rabe, including the leafy parts, along with the garlic, chili flakes, and anchovies. Give the ingredients a stir and let it cook for about 5 minutes, stirring occasionally. Add salt and pepper to taste. The broccoli rabe is done when the stems are tender. Set the filling aside.
@@ -918,7 +962,7 @@ Gather up the half of the dough that isn’t weighed down with filling and fold 
 
 Bake for 6 to 8 minutes or until the calzones are golden-brown on the outside. Be careful when you bite into them—they’ll be hot!
 
-## Broccoli, Egg, and Chedday Empanadas
+## Broccoli, Egg, and Cheddar Empanadas
 - MAKES TWELVE
 - $7.50 TOTAL $0.60 / EMPANADA
 
@@ -941,6 +985,8 @@ FILLING
 - ½ tsp chili flakes
 - salt and pepper
 - 1 cup sharp cheddar, grated
+
+#### Instructions
 
 Mix the flour, cornmeal, and salt in a large bowl. The cornmeal isn’t traditional in empanadas—I just like the extra crunch it gives. You can substitute more flour for the cornmeal if you like.
 
@@ -983,6 +1029,8 @@ These are a great meal to make when you have leftover roti and raita. The fillin
 - 1 tsp cayenne powder
 - raita (p. 164)
 - fresh cilantro
+
+#### Instructions
 
 Put a skillet on medium heat and add the ghee or butter. (Ghee, which is traditional in Indian cooking, is just butter with the milk solids removed, and it can withstand higher temperatures than butter without burning.)
 
@@ -1060,6 +1108,8 @@ Zucchini and summer squash are so abundant in the summer months. This simple pas
 - fresh basil, finely
 - chopped (optional)
 
+#### Instructions
+
 Bring a pot of water to boil over high heat. Salt the water liberally. This is how pasta gets salted, so don’t be shy! Most won’t end up in the pasta.
 
 Cook the pasta according to the package directions. I prefer my pasta with some bite, so I drain the pasta just before it’s finished so it doesn’t get mushy when I add it to the vegetable pan to cook slightly more.
@@ -1085,6 +1135,8 @@ This is similar to a traditional pasta alla norma, but without anchovies and ric
 - ¼ cup Romano or Parmesan, freshly grated
 - salt and pepper
 - fresh basil, finely chopped (optional)
+
+#### Instructions
 
 Put a pot of water on high heat and add a good shake of salt. Bring it to a boil and cook the pasta according to the package instructions.
 
@@ -1124,6 +1176,8 @@ GARNISHES
 - fresh cilantro
 - yogurt
 
+#### Instructions
+
 Measure out all the spices except the cumin seeds and put them in a small bowl.
 
 Let the ghee (clarified butter) melt in a small saucepan over medium-low heat. (Ghee is the traditional Indian choice, but you can substitute butter and a splash of olive oil if you can’t find ghee.) Once the ghee begins to sizzle, add the cumin seeds and stir for about 5 seconds. Add the onion and sauté for 2 minutes. Add the garlic and cook for 1 minute. Add the ginger and jalapeño and cook for 1 more minute. Add the spices and then the puréed tomatoes. Mix, then put a lid on the pan and let everything cook down for 5 to 10 minutes.
@@ -1145,6 +1199,8 @@ This is similar to the southern classic Hoppin’ John. If you have them, you ca
 - 1 bay leaf
 - 1 large bunch collards
 - salt and pepper
+
+#### Instructions
 
 Soak the black-eyed peas overnight in 4 cups of water.
 
@@ -1188,6 +1244,8 @@ Additions
 - shrimp
 - leftover meat, tofu, or beans
 
+#### Instructions
+
 Start with the oil in a large high-sided saucepan over medium-high heat. Add the onion, pepper, and celery, then cook for about 5 minutes, until they become translucent but not brown.
 
 Add the rest of the ingredients except for the rice and broth. Let everything cook for about 1 minute to let some of the tomato juice release.
@@ -1228,6 +1286,8 @@ VARIATIONS
 - 1 can coconut milk instead of water
 - chicken schmaltz instead of vegetable oil
 
+#### Instructions
+
 In a large, non-aluminum pan, stir together the vinegar, soy sauce, garlic, pepper, and bay leaves. Add the chicken, coating each piece thoroughly. Cover and let marinate for at least 30 minutes, but overnight is great.
 
 Pull the chicken out of the marinade and pat each piece dry
@@ -1252,6 +1312,8 @@ My dad loves beans in basically any form. This is his formula for the quickest, 
 - 2 tbsp mustard
 - 2 tbsp molasses or brown sugar
 - 2 tsp chipotle en adobo, or any chili sauce
+
+#### Instructions
 
 If you’re using the chipotle en adobo, chop it finely to be sure the spice will be evenly distributed.
 
@@ -1286,6 +1348,8 @@ TOPPINGS
 - crumbled bacon
 - chunks of ham
 
+#### Instructions
+
 Cook everything in a pot on medium heat for approximately 5 minutes, or until the juices thicken. That’s it!
 
 ## Half-Veggie Burgers
@@ -1302,6 +1366,8 @@ When a reader named Quinn suggested a recipe that used both lentils and meat, I 
 - 1 egg (optional)
 - salt and pepper
 - 8 buns
+
+#### Instructions
 
 You can use almost any vegetable to make these burger patties, except lettuce and other greens. If you pick a hard vegetable like potato, squash, or eggplant, you’ll need to cook it first.
 
@@ -1340,6 +1406,8 @@ ADDITIONS
 - ½ cup red wine
 - potatoes
 - fresh dill
+
+#### Instructions
 
 Chop the raw beef into bite-sized pieces and season generously with salt and pepper.
 
@@ -1386,6 +1454,8 @@ ADDITIONS
 - chili peppers
 - fresh cilantro
 - daikon radish, sliced
+
+#### Instructions
 
 If you have time, freeze the ginger root for an hour before you start. It’s much easier to grate when frozen! Store the rest of the root in the freezer until the next time you need it.
 
@@ -1439,6 +1509,8 @@ VARIATIONS
 - instead of lentils and sausage
 - swiss chard or collards instead of cabbage
 
+#### Instructions
+
 Heat the oven to 350 °F
 
 Melt the butter in a large pan over medium heat. Slice the casing off the sausage and crumble the raw meat into the pan. I used fresh chorizo because it’s easy to find in my neighborhood and I love the spicy, smoky flavor, but you should use whatever your favorite is. A sweet Italian sausage would taste great too. Sauté the meat until it’s no longer pink, then move it to a large bowl.
@@ -1478,6 +1550,8 @@ TOPPING
 - ½ cup sharp cheddar, grated
 - ½ cup butter
 - 1 cup milk
+
+#### Instructions
 
 Put the butter for the topping in the freezer for 30 minutes. Set the oven to 425 °F.
 
@@ -1520,6 +1594,8 @@ ADDITIONS
 - 1 tsp smoked paprika
 - ½ tsp thyme
 
+#### Instructions
+
 Set the oven to 400 °F.
 
 Bring a large pot of water to boil over high heat. Add the salt and the cauliflower, then leave it for 4 minutes.
@@ -1548,6 +1624,8 @@ Much as I love this quiche hot, I like it even better cold out of the fridge the
 - 1 cup cheddar or other cheese, grated
 - 1 tsp salt
 - ½ tsp black pepper
+
+#### Instructions
 
 Set the oven to 400 °F.
 
@@ -1589,6 +1667,8 @@ TOPPING
 - 1 green chili, finely diced (optional)
 - 1 tomato, chopped
 
+#### Instructions
+
 Bring the stock to a boil in a medium-sized pot, then turn the heat down to low and slowly pour in the cornmeal while stirring briskly with a wooden spoon. Stirring while pouring is crucial to keep the grits creamy and smooth—no lumps! Once the grits become smooth and thick, place a lid on the pot with the spoon still in it so that steam can escape.
 
 Let the grits cook while you prepare the rest of the meal, checking in occasionally to give them a stir. The total cooking time should be about 25 to 30 minutes.
@@ -1618,6 +1698,8 @@ Polenta plus vegetable plus egg equals satisfying and delicious. You can also ad
 - Romano or Parmesan, freshly grated
 - salt and pepper
 
+#### Instructions
+
 Bring the water and salt to a boil in a medium-sized pot, then turn the heat down to low and slowly pour in the polenta while stirring briskly with a wooden spoon. Stirring while pouring is crucial to keep the polenta creamy and smooth—no lumps! Once the cornmeal becomes smooth and thick, place a lid on the pot with the spoon still in it so that steam can escape.
 
 Let the polenta cook while you prepare the rest of the meal, checking in occasionally to give it a stir. The total cooking time should be about 25 to 30 minutes, but if you’re in a rush, you can eat it after 15.
@@ -1643,6 +1725,8 @@ A whole chicken is usually less expensive than buying single pieces like breasts
 - 2 cloves garlic
 - 1 lemon
 - salt and pepper
+
+#### Instructions
 
 Heat the oven to 400 °F.
 
@@ -1680,6 +1764,8 @@ lemon zest, anything you would pair with roast
 chicken, tough herbs like sage, oregano, thyme,
 bay leaves, any dry spice combination (p. 166)
 
+#### Instructions
+
 Set the oven to 400 °F.
 
 Clean and chop your vegetables. Generally, I prefer to leave the skin on for the following reasons: skin tastes nice and gets crispy; there’s a lot of nutrition in the skin; peeling is slow! Just be sure to wash the vegetables thoroughly.
@@ -1710,6 +1796,8 @@ It doesn’t get much simpler or more satisfying than this. You can use any pepp
 - 1 tbsp butter, melted
 - salt and pepper
 
+#### Instructions
+
 In a large roasting pan, tumble together the potatoes, peppers, and garlic. When you chop the peppers, be sure to get rid of the seeds and white placenta inside.
 
 Pour the butter over top and sprinkle liberally with salt and pepper. Potatoes need quite a bit of salt! Use your hands to mix everything up.
@@ -1736,6 +1824,8 @@ This meal comes together so quickly it’s astonishing. Broiled fish is crispy o
 - ½ tsp garlic powder
 - ½ tsp oregano
 - ½ lime, juiced
+
+#### Instructions
 
 Turn your oven’s broiler to high.
 
@@ -1772,6 +1862,8 @@ DRY Rub
 - 1 tsp clove powder
 - 1 tsp garlic powder
 - 1 tsp black pepper
+
+#### Instructions
 
 Mix the rub ingredients together. Apply liberally to the pork shoulder, pressing it gently into the meat until you’ve covered every side. Set any leftover rub aside for later. Place the pork shoulder in a large pot with a tight lid or a Dutch oven. Cover with a towel or lid and leave in the fridge for a few hours or overnight.
 
@@ -1845,6 +1937,8 @@ VARIATIONS
 - avocado
 - olives
 
+#### Instructions
+
 Hard-boiled eggs are easier to peel if the eggs aren’t quite fresh, so try making these when you have eggs that have been sitting around for a week or two.
 
 Place a layer of eggs at the bottom of a pot that is large enough to fit them with a bit of wiggle room. If you can’t fit all your eggs, don’t stack them—they might crack. Split them into batches instead.
@@ -1893,6 +1987,8 @@ ADDITIONS
 TO SERVE
 - sour cream
 - scallions, chopped
+
+#### Instructions
 
 In a large bowl, mix the flour and salt. Pour in the yogurt, eggs, and a tablespoon of water. Mix it slowly and carefully. The dough will be quite sticky. Cover it with a towel or plastic wrap while you make the filling.
 
