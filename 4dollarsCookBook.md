@@ -750,6 +750,8 @@ Serve with salsa and sour cream, ketchup, raita (p. 122), tzatziki, bean dip or 
 
 These are a great snack or a quick meal, and you can add pretty much anything to them!
 
+#### Ingredients
+
 - 4 tortillas
 - ½ cup sharp cheddar, grated
 - ½ cup green chilies, canned or fresh, chopped
@@ -768,6 +770,8 @@ Poutine isn’t an everyday meal, but it’s a favorite. Since I don’t like de
 Montreal-style poutine is made with vegetable gravy, as in this recipe, but you can also make your favorite beef or turkey gravy.
 
 Of course, proper poutine uses cheese curds, and if you can find them do use those, but fresh mozzarella works for me. It has the same spongy quality, just maybe with a little less squeak. This recipe does comes out a little more expensive than you would think because of the fresh mozzarella. If you use less or skip the cheese entirely, you can cut the price in half.
+
+#### Ingredients
 
 - 2-3 medium Russet potatoes, sliced into sticks
 - 2 tbsp vegetable oil
@@ -806,6 +810,8 @@ Once they’re done, pile one layer of fries onto a plate. Top with cheese and t
 
 Popcorn is such a great snack. It’s easy to forget how easy and cheap it is to prepare at home. Try some different toppings! I’ve suggested a few on the opposite page.
 
+#### Ingredients
+
 - 1/3 cup popcorn
 - 2 tbsp vegetable oil
 - 2 tbsp butter, melted
@@ -841,6 +847,8 @@ Sometimes you just don’t want to deal with plates and cutlery. Plus, eating wi
 
 This is one of my favorite ways to use roasted cauliflower other than eating it straight. It’s a delicious change from the usual vegetable taco offerings. Just look at all those crunchy bits!
 
+#### Ingredients
+
 - roasted cauliflower (p. 58)
 - 6 tortillas
 - ½ cup cheese, grated
@@ -857,6 +865,8 @@ Sprinkle the grated cheese over top and drizzle with salsa or sauce of your choi
 - $9 TOTAL $2.25 / Pizza
 
 Obviously you should just make all kinds of pizza. Seriously, do it. Make it a Thursday night tradition and an excuse to use up leftovers. This pizza, for one, is a fun variation that confounds expectations—proof that, indeed, anything is good on pizza!
+
+#### Ingredients
 
 - pizza dough (p. 139)
 - 2 tbsp olive oil
@@ -885,6 +895,8 @@ Now layer it with ¼ of the potato and leek mixture and ¼ of the shredded mozza
 
 Calzones are pizza in a slightly different form—a form that lets you get stuff in more filling without weighing down the crust. Broccoli rabe is great, but you can use any bitter green, or even broccoli or cauliflower. You’ll love these crusty pockets full of oozy goodness!
 
+#### Ingredients
+
 - pizza dough (p. 139)
 - 1 tbsp olive oil
 - 1 large bunch broccoli rabe, chopped
@@ -911,6 +923,8 @@ Bake for 6 to 8 minutes or until the calzones are golden-brown on the outside. B
 - $7.50 TOTAL $0.60 / EMPANADA
 
 In case you can’t tell by now, I am partial to tasty dough stuffed with something even tastier. Every culture has its own version, so when you think about it that way, having empanadas, dumplings, perogies, and calzones in one book isn’t that crazy—right? My friend Barb felt the same way, so I created this recipe for her.
+
+#### Ingredients
 
 - 2 cups all-purpose or whole-wheat flour
 - ½ cup cornmeal
@@ -953,6 +967,8 @@ Bake for 20 minutes, until they turn golden brown.
 - $5.25 TOTAL $0.66 / Roll
 
 These are a great meal to make when you have leftover roti and raita. The filling comes together in minutes and could be anything, but potatoes and greens are tasty and filling.
+
+#### Ingredients
 
 - 8 roti (p. 138)
 - 2 large or 4 medium potatoes, chopped
@@ -1031,6 +1047,8 @@ My favorite meal of the day. For me, eating dinner indicates that the hard work 
 
 Zucchini and summer squash are so abundant in the summer months. This simple pasta is like a lighter, brighter fettuccine alfredo. It also comes together in no time—the veggies will be ready by the time your pasta is cooked. You’ll love it, I promise.
 
+#### Ingredients
+
 - ½ lb fettuccine
 - 4 tbsp butter
 - 4 cloves garlic, finely chopped
@@ -1055,6 +1073,8 @@ Drain the cooked fettuccine and add it to the zucchini pan along with the rest o
 - $5 TOTAL $2.50 / SERVING
 
 This is similar to a traditional pasta alla norma, but without anchovies and ricotta salata. I like to use a tubular pasta for this dish, but you can use anything, even spaghetti. The eggplant and tomatoes come together into a sauce that is thick and jammy and savory.
+
+#### Ingredients
 
 - ½ lb pasta (rigatoni or similar)
 - 2 tbsp olive oil
@@ -1081,6 +1101,8 @@ Serve it in bowls sprinkled with more Romano and basil.
 - $3 TOTAL $1.50 / SERVING
 
 This Indian chickpea dish is a staple in my home. If you don’t have cooked chickpeas around, you can use canned, but it will cost about $1 more.
+
+#### Ingredients
 
 - ½ tbsp ghee or ½ tbsp butter plus a splash of olive oil
 - 1 tsp cumin seeds
@@ -1114,6 +1136,8 @@ Once the tomato has reduced and the ghee starts to separate from the sauce, add 
 
 This is similar to the southern classic Hoppin’ John. If you have them, you can add more vegetables to the base along with the onion—celery, carrot, bell pepper, and some canned tomato would all be great in this. If you want to skip the bacon, just add smoked paprika to replace the smoky flavor.
 
+#### Ingredients
+
 - 1 cup dried black-eyed peas
 - 1 tbsp butter 1 large onion, finely chopped
 - 3 cloves garlic, finely chopped
@@ -1137,6 +1161,8 @@ Serve this over rice or any other grain, or with some toast or flatbread.
 - $3.90 TOTAL $0.65 / SERVING
 
 I don't make jambalaya exactly the way they do down south, but this vegetable-heavy version is faster and just as good--a great, throw-everything-in-the-pot kind of meal. It's spicy, savory and deeply satisfying. The leftovers are great for making burritos or warmed up with a fried egg on top.
+
+#### Ingredients
 
 - 2 tbsp vegetable oil
 - 1 medium onion, chopped
@@ -1178,6 +1204,8 @@ This ultra-adaptable recipe comes to us care of Tony Pangilinan, who grew up on 
 
 Filipino adobo—very different from Spanish adobo—is basically anything cooked in vinegar, soy sauce, and garlic. Although this version is chicken, you can use any meat or vegetables you like. It’s a brilliant dish that turns basic staples into deliciousness. Because it’s vinegar-based, it also keeps well in the fridge!
 
+#### Ingredients
+
 - ¾ cup rice vinegar or white vinegar
 - ¼ cup soy sauce
 - 2 cloves garlic, minced
@@ -1218,6 +1246,8 @@ Remove the bay leaves from the adobo. In a small bowl, mix the cornstarch with a
 
 My dad loves beans in basically any form. This is his formula for the quickest, easiest way to get beans on his plate without missing out on great flavor. Dad’s beans rely on a can of baked beans as the base, while my version uses dried beans you might have left over from another meal. Mine requires a little more cooking and chopping to create the sauce, but comes out even less expensive because of the dried beans. They both taste great, so go with what works best for you: super quick and cheap, or quick and cheaper
 
+#### Ingredients
+
 - 2 cans (27 oz) baked beans
 - 2 tbsp mustard
 - 2 tbsp molasses or brown sugar
@@ -1232,6 +1262,8 @@ Serve with rice, or just in a bowl. For an English-style breakfast, try spreadin
 ## My Baked Beans
 - FOR TWO, OR FOUR AS A SIDE
 - $3 TOTAL $1.50 / SERVING
+
+#### Ingredients
 
 - 3 cups dried pinto, red, or black beans, cooked
 - ½ cup canned tomatoes, puréed or chopped, with juice
@@ -1262,6 +1294,8 @@ Cook everything in a pot on medium heat for approximately 5 minutes, or until th
 
 When a reader named Quinn suggested a recipe that used both lentils and meat, I started thinking about how veggie burgers and beef burgers each have their own strengths. Why not combine the two ideas to create a burger with meaty flavor but the lean protein and low cost of lentils? And so I offer you the half-veggie burger. May it rest a little lighter in your belly
 
+#### Ingredients
+
 - 3 cups lentils or beans, cooked
 - 1 cup bell pepper or other vegetable, finely chopped
 - 1 lb ground beef or other ground meat
@@ -1286,6 +1320,8 @@ If you won’t eat all the burgers at once, wrap the raw patties in plastic. Ref
 - $16.50 TOTAL $2.75 / SERVING
 
 Beef stroganoff is one of my husband’s favorites, so I make it as a treat for him—and one of my early readers, Dave, says his mother made it for him growing up. It’s a classic winter meal from Eastern Europe that warms up a cold house and fills the air with rich aroma. You can use any cut of beef; just adjust the cooking time based on the toughness. Dave’s mom made it with red pepper instead of carrot, so feel free to do the same if you can get red peppers at a good price.
+
+#### Ingredients
 
 - 1 lb beef chuck or other cut
 - salt and pepper
@@ -1326,6 +1362,8 @@ Put the noodles into bowls and top with the stew. Sprinkle a little paprika over
 - $7.20 TOTAL $1.80 / SERVING
 
 I got really excited when my friend Iva asked for a recipe that featured the Chinese flavors she grew up with. After all, Chinese cooking depends on the same general principles as Good and Cheap: build bright flavors from a few key ingredients; use lots of veggies and just a little meat or fish. The ginger-garlic broth in this hot pot is spectacular! You can use whatever vegetables you have around, but mushrooms help create an earthy broth. The effect of such a small amount of toasted sesame oil is remarkable, too—an investment, but a transformative flavor.
+
+#### Ingredients
 
 - 1 tbsp ginger root, finely grated
 - 4 cloves garlic, finely grated
@@ -1377,6 +1415,8 @@ Casseroles are a great way to stretch your cooking-without-a-recipe muscles.  As
 
 So here's my adaptation of one of Carolie's favorite casseroles, itself a play on cabbage rolls, a traditional Eastern European dish that is delicious but labor-intensive. This version is a good way to use up leftover rice or grains and lentils including leftover rainbow rice (p. 144).
 
+#### Ingredients
+
 - 1 tbsp butter
 - 1 fresh sausage, casing removed
 - 1 onion, chopped
@@ -1416,6 +1456,8 @@ Bake until hot and bubbly, approximately 30 minutes.
 - $8 TOTAL $2 / SERVING
 
 Celebrate summer’s most ubiquitous vegetables, tomato and zucchini, with a crunchy Southern biscuit topping.
+
+#### Ingredients
 
 - 3-4 medium zucchini or summer squash, chopped into bite-sized pieces
 - 3-4 large tomatoes, canned or fresh, chopped into bite-sized pieces
@@ -1457,6 +1499,8 @@ For a variation, swap the zucchini for eggplant. Chop the eggplant into bite-siz
 
 This is a classic side dish in Great Britain: creamy, cheesy sauce over cauliflower, baked in the oven until the edges get crunchy and bubbly. It’s like a healthier and more flavorful version of macaroni and cheese. Alternatively, try this with broccoli or cooked winter squash—everyone will love it.
 
+#### Ingredients
+
 - 1 head cauliflower, cut into bite-sized florets
 - 2 tsp salt
 - 1 tbsp butter
@@ -1494,6 +1538,8 @@ Enjoy with a green salad. I also like mine with salsa.
 
 Much as I love this quiche hot, I like it even better cold out of the fridge the next day. It makes a great fast breakfast or lunch. The quiche in the picture uses broccoli, but you can make it with pretty much any kind of vegetable. Some of my favorites are roasted green chilies and cheddar, winter squash with goat cheese, zucchini and tomato, or spinach and olive.
 
+#### Ingredients
+
 - 1 tbsp butter
 - 1 large onion, sliced into half moons
 - 3-4 cups chopped vegetables
@@ -1525,6 +1571,8 @@ Let the quiche cool for about 20 minutes, then slice into wedges and serve with 
 
 The cost of shrimp has jumped sharply since I wrote this recipe, so save this one until you can find a deal—under about $8 per pound. This is far from an authentic Southern version of this dish, but it is absolutely delicious. Southerners will demand you use white stone-ground corn for this, and I won’t quibble, but feel free to use yellow if it doesn’t offend you.
 
+#### Ingredients
+
 GRITS
 - 1 cup grits
 - 4½ cups vegetable or chicken stock
@@ -1554,6 +1602,8 @@ Once the grits are ready, take them off the heat and add the cheese and most of 
 - $3.50 TOTAL $1.75 / SERVING
 
 Polenta plus vegetable plus egg equals satisfying and delicious. You can also add a can of corn to the polenta for deep, rich, corny flavor. Or go a little different by adding frozen peas, scallions, olives, or (my favorite) green chilies to the polenta. Or skip the Romano and add ¼ cup of grated cheddar to the polenta.
+
+#### Ingredients
 
 - ½ cup polenta or cornmeal
 - 2 cups water
@@ -1586,6 +1636,8 @@ Once the whites of the eggs are cooked, remove them from the pan with a spatula 
 
 A whole chicken is usually less expensive than buying single pieces like breasts or thighs—plus you can make stock later from the bones and any meat too difficult to get off. The leftovers can be used in sandwiches, tacos, over a salad, or tossed with sauce and mixed into pasta. This is a base recipe: add spices to the butter or sprinkle over the surface of the chicken to change up the flavor in any way you like.
 
+#### Ingredients
+
 - 1 whole chicken
 - 1 tbsp butter
 - 2 cloves garlic
@@ -1607,6 +1659,8 @@ After you’ve carved away all the meat, make chicken stock from the carcass. Si
 ## METHOD: Roasted Vegetables
 
 When the weather turns cool, I want only to eat warm, flavorful food. Roasting is easy, it warms up the kitchen, and it makes the house smell like the holidays. If you’re uncertain how to prepare a new vegetable, you usually can’t go wrong with roasting—most things end up sweeter, with nice crunchy bits. If you roast a bunch of vegetables at the beginning of the week, you can eat them throughout the week in various ways: with eggs at breakfast, folded into an omelette, as a side dish, in a taco or sandwich, on toast, or with any grain.
+
+#### Ingredients
 
 - vegetables
 - olive oil or butter
@@ -1648,6 +1702,8 @@ Turn the page for another great idea for roasted veggies.
 
 It doesn’t get much simpler or more satisfying than this. You can use any pepper you like—from large, dark poblanos, to Hungarian wax chilies, to bell peppers.
 
+#### Ingredients
+
 - 4 medium potatoes, chopped into bite-sized pieces
 - 4 medium chilies, chopped into bite-sized pieces
 - 2 cloves garlic, unpeeled
@@ -1669,6 +1725,8 @@ Alternatively, try it alongside some black beans and rice or piled high on a pla
 - $9 TOTAL $4.50 / SERVING
 
 This meal comes together so quickly it’s astonishing. Broiled fish is crispy on the outside and flaky and moist on the inside. If you quickly sauté some vegetables while the fish cooks, dinner will be on the table in minutes.
+
+#### Ingredients
 
 - 2 fillets tilapia or other white fish
 - 1 tsp salt
@@ -1698,6 +1756,8 @@ It’s simple economics: usually making a large amount of something is cheaper a
 - $14 TOTAL $1.40 / SERVING
 
 Pulled pork is a celebration, worthy of a special day. It’s incredibly flavorful, rich, spicy, and remarkably versatile. Although it seems expensive, it’s quite a bargain when you look at the price per serving. As with most celebratory meals, this one takes quite a long time to prepare. Most of the time, however, is just spent waiting for it to cook “low and slow.”
+
+#### Ingredients
 
 - 5 lb pork shoulder
 
@@ -1738,6 +1798,8 @@ Don’t forget some veggies on the side to round out the meal—a simple green s
 - $3.60 total $.15 / half egg
 
 Deviled eggs are my favorite party food and the perfect recipe to dedicate to my friend Camilla. At parties, I often eat too much random junk food and end up feeling gross. These eggs are a great antidote: festive and delicious without being empty calories. Although they’re a little fussy, they aren’t actually difficult to make. I’ll start you off with these few ideas, but you can add whatever flavors suit your fancy.
+
+#### Ingredients
 
 - 12 eggs
 - salt and pepper
@@ -1806,6 +1868,8 @@ Sprinkle with the scallions and some paprika for color. Have a great party!
 - $14 TOTAL $.20 / PEROGY
 
 This is a huge recipe that will feed you for days. It takes time and effort, but the results are worth it. The most fun approach is to invite a couple of friends over for a perogy- making party. Everyone takes home a bag or two for the freezer, and it’s a great time!
+
+#### Ingredients
 
 DOUGH
 - 4 1/2 cups all-purpose flour
