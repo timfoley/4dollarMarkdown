@@ -1635,7 +1635,7 @@ Melt the butter in a skillet over medium heat. Add your onion slices and sprinkl
 
 A note on vegetables: For things like broccoli, cauliflower or winter squash, I suggest steaming or cooking them before adding them to the quiche to ensure they’ll be fully cooked. For tomatoes, zucchini, spinach or any other quick-cooking vegetable, just use them fresh.
 
-Spread the vegetables evenly over top of the onions. The ish or pan should look fairly full.
+Spread the vegetables evenly over top of the onions. The dish or pan should look fairly full.
 
 In a bowl, use a fork to lightly beat the eggs with the milk, cheese, salt, and pepper, just enough to break up the yolks and whites. This is a savory custard mixture. Pour the custard over the vegetables and onions and enjoy watching it fill in all the free spaces.
 
